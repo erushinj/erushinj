@@ -13,5 +13,3 @@ If something I make breaks due to a game update, I'll probably only be able to f
 [Pronouns Page](https://en.pronouns.page/@erushinj) (this is important, check it)
 
 [Steam](http://steamcommunity.com/profiles/76561198128507840)
-
-[Twitter](https://twitter.com/erushinj) (R18)
